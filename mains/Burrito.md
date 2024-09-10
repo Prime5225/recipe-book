@@ -6,6 +6,7 @@ Ingredients
 - 1 x Capsicum Green
 - 2 x Onions
 - 3 x cloves of garlic
+- 10 mL of vegetable oil
 
 Steps
--Do as before
+- Do as before, but better.
